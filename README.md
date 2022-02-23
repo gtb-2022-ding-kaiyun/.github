@@ -1,4 +1,4 @@
-# ALl About Me
+# All About Me
 
 **Hello there, feel free to call me Kay or Karlene or K or anything you feel proper as long as it's related to the letter 'K' ;P**
 
