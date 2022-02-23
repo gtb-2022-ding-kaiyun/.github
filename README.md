@@ -25,7 +25,7 @@ Good to meet y'all!
 
 你好👋
 
-我叫丁恺韵，是一个土生土长在成都的川妹zei
+我是Kay，是一个土生土长在成都的川妹zei
 
 也是来自金融和BA背景的SuperX
 
