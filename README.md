@@ -15,7 +15,7 @@ We are assigned to:
 
 So I chose skull and flower. 
 
-Among all the drawings and paintings of mine, this is my fav of the fav. Simply, because I think it looks really ### COOOOOOOOOL
+Among all the drawings and paintings of mine, this is my fav of the fav. Simply, because I think it looks really **COOOOOOOOOL**
 
 I barely do any selfies or portraiting due to the lack of confidence about my looks so...Unfortunately there might no be any pics of myself. Maybe next time till I overcome my appearance anxiety :/
 
